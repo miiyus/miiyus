@@ -4,7 +4,7 @@
 
 <img align="right" width=250px alt="Unicorn" src=https://cdn.cdnstep.com/e9bljtbHx5tAX1wU0Okw/0-1.thumb128.png />
 
- <img src="https://media.giphy.com/media/ObNTw8Uzwy6KQ/giphy.gif" width="30px">&nbsp;***αвσυt мє***
+ <img src="https://cdn.cdnstep.com/30hZZq5UKW6icz42GztD/0-1.thumb128.webp" width="30px">&nbsp;***αвσυt мє***
 
 𝐼 𝑎𝑚 𝑎 𝑝𝑜𝑛𝑦 𝑡𝑜𝑤𝑛 𝑝𝑙𝑎𝑦𝑒𝑟!! 𝑡ℎ𝑖𝑠 𝑝𝑟𝑜𝑓𝑖𝑙𝑒 𝑖𝑠 𝑚𝑒𝑎𝑛𝑡 𝑓𝑜𝑟 𝑝𝑒𝑜𝑝𝑙𝑒 𝑡𝑜 𝑘𝑛𝑜𝑤 𝑚𝑜𝑟𝑒 𝑎𝑏𝑜𝑢𝑡 𝑚𝑒
 
