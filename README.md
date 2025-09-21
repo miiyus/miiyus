@@ -1,4 +1,4 @@
-<h1 align="center"><b>Hi , I'm Miyuss :3 </b><img **/media.giphy.com/media/ObNTw8Uzwy6KQ/giphy.gif" width**" width="35"></h1>
+<h1 align="center"><b>Hi , I'm Miyuss :3 </b><img **https://cdn.cdnstep.com/30hZZq5UKW6icz42GztD/0-1.thumb128.webp" width**" width="35"></h1>
 
 ###
 
