@@ -4,7 +4,7 @@
 <img src="https://i.pinimg.com/originals/93/ac/5f/93ac5fcb6116acf9e329a9e23cdd9be1.gif" width="35px">&nbsp;***ֺ  ָ  𝒜𝒷𝑜𝓊𝓉 𝓂𝑒    ֙***
 
 
-<img align="right" width=300px alt="Unicorn" src="https://i.pinimg.com/originals/a8/6a/d8/a86ad8ef8c7b2c30d751e72118050919.gif" />
+<img align="right" width=290px alt="Unicorn" src="https://i.pinimg.com/originals/a8/6a/d8/a86ad8ef8c7b2c30d751e72118050919.gif" />
 
   𝐼 𝘢𝘮 𝘢 𝑝𝘰𝘯𝑦 𝘵𝘰𝓌𝑛 𝓅𝓁𝘢𝑦𝑒𝑟!! 𝘵ℎ𝘪𝓈 𝘱𝘳𝘰𝘧𝘪𝓁𝘦 𝑖𝓈 𝑚𝘦𝘢𝑛𝘵 𝑓𝘰𝑟 𝓅𝘦𝘰𝓅𝓁𝘦 𝘵𝘰 𝘬𝑛𝘰𝓌
   𝑚𝘰𝑟𝘦 𝘢𝑏𝘰𝓊𝘵 𝓂𝘦  ⁺◝ㅤ
