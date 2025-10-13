@@ -24,8 +24,8 @@
   <a href="https://github.com/sponsors/Miiyus"><img src="https://img.shields.io/static/v1?label=Sponsor&message=%E2%9D%A4&logo=GitHub&color=%13fe8e86"/></a>
  
 🥯 𝘔𝘺 𝘯𝘢𝘮𝘦𝘴 ... 
-- 𝑀𝑦 𝑛𝑎𝑚𝑒 𝑜𝑛 𝑠𝑜𝑐𝑖𝑎𝑙 𝑚𝑒𝑑𝑖𝑎: Miiyus
-- 𝑀𝑦 𝑛𝑎𝑚𝑒 𝑜𝑛 𝑔𝑎𝑚𝑒𝑠: Mimiyus / Miiko.skaaa
+- 𝑀𝑦 𝑛𝑎𝑚𝑒 𝑜𝑛 𝑠𝑜𝑐𝑖𝑎𝑙 𝑚𝑒𝑑𝑖𝑎: ઇ Miiyus ઉ
+- 𝑀𝑦 𝑛𝑎𝑚𝑒 𝑜𝑛 𝑔𝑎𝑚𝑒𝑠:  ઇ Mimiyus ઉ / ઇ Miiko.skaaa ઉ
 
  
 
