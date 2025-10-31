@@ -71,8 +71,6 @@
   
 ---------------------------------------------------------------------------------------------------------------------
 
- <img align="right" alt="GIF" height="164px" src="https://i.pinimg.com/736x/0e/5f/be/0e5fbef07be1a6c5bdf7e3efa7a68959.jpg" />
-
  ╭──────── 𝘚𝘰𝘯𝘨𝘴 𝘵𝘩𝘢𝘵 𝘐 𝘤𝘶𝘳𝘳𝘦𝘯𝘵𝘭𝘺 𝘭𝘪𝘬𝘦 ...
 
 - 𝘓𝘰𝘯𝘦𝘭𝘺 𝘋𝘢𝘺 - 𝘚𝘺𝘴𝘵𝘦𝘮 𝘖𝘧 𝘈 𝘋𝘰𝘸𝘯
@@ -99,8 +97,13 @@
    (https://open.spotify.com/intl-es/track/2DlHlPMa4M17kufBvI2lEN?si=c51ddbf20e60473f)
 
    ---------------------------------------------------------------------------------------------------------------------
+ <img align="right" alt="GIF" height="164px" src="https://i.pinimg.com/736x/0e/5f/be/0e5fbef07be1a6c5bdf7e3efa7a68959.jpg" />
 
    [![image](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/miiy.us/)
   [![Discord](https://img.shields.io/badge/Discord-%235865F2.svg?style=for-the-badge&logo=discord&logoColor=white)](https://discord.com/miiko_skaaa/)
-
+   
+      
+      
+      
+   
    ---------------------------------------------------------------------------------------------------------------------
