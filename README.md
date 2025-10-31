@@ -99,4 +99,8 @@
    (https://open.spotify.com/intl-es/track/2DlHlPMa4M17kufBvI2lEN?si=c51ddbf20e60473f)
 
    ---------------------------------------------------------------------------------------------------------------------
-  
+
+   [![image](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/miiy.us/)
+  [![Discord](https://img.shields.io/badge/Discord-%235865F2.svg?style=for-the-badge&logo=discord&logoColor=white)](https://discord.com/miiko_skaaa/)
+
+   ---------------------------------------------------------------------------------------------------------------------
