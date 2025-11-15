@@ -1,7 +1,7 @@
 ⠀⠀<h1 align="center">
-  <b>  _____________________ ‿̩༻♱༺‿̩ _____________________
+  <b>  _____________________ ‿<img src="https://em-content.zobj.net/source/apple/129/dvd_1f4c0.png" width="28px">‿  _____________________
   
-   ˓˓ 𝐻𝒾! 𝐼'𝑚 𝑀𝒾𝒾𝑦𝓊𝑠  <img src="https://em-content.zobj.net/source/apple/237/pancakes_1f95e.png" width="28px"> ˒˒</b>
+   ˓˓ 𝐻𝒾! 𝐼'𝑚 𝑀𝒾𝒾𝑦𝓊𝑠 ˒˒</b>
   </h1>
 
   <p align="center">
