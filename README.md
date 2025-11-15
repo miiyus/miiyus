@@ -1,5 +1,5 @@
 ⠀⠀<h1 align="center">
-  <b>  _____________________ ‿<img src="https://em-content.zobj.net/source/apple/129/dvd_1f4c0.png" width="28px">‿  _____________________
+  <b>  _____________________ ‿<img src="https://em-content.zobj.net/source/apple/81/fleur-de-lis_269c.png" width="30px">‿  _____________________
   
    ˓˓ 𝐻𝒾 ! 𝐼'𝑚 𝑀𝒾𝒾𝑦𝓊𝑠 ˒˒</b>
   </h1>
