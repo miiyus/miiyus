@@ -67,4 +67,9 @@
   
        
 
-<img align="center" alt="GIF" height="900px" src="https://files.catbox.moe/o4xu5w.png" />
+<img align="center" alt="GIF" height="900px" src="https://files.catbox.moe/o4xu5w.png"/>
+ 
+  
+     
+  [![image](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/miiy.us/)
+  [![Discord](https://img.shields.io/badge/Discord-%235865F2.svg?style=for-the-badge&logo=discord&logoColor=white)](https://discord.com/miiko_skaaa/)
