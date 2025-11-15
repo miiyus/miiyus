@@ -1,9 +1,11 @@
 ⠀<p align="center">
 <img align="center" alt="GIF" height="900px" src="https://files.catbox.moe/1dkkur.png" />
 <h1 align="center">
-  <b>  _____________________ ‿<img src="https://em-content.zobj.net/source/apple/81/fleur-de-lis_269c.png" width="30px">‿  _____________________
-  
-   ˓˓ 𝐻𝒾 ! 𝐼'𝑚 𝑀𝒾𝒾𝑦𝓊𝑠 ˒˒</b>
+  <b>  _____________________ ‿<img src="https://i.pinimg.com/originals/25/fd/7d/25fd7d8356fe7fd1f105604b167c1516.gif" width="50px">‿ _____________________
+
+
+
+˓˓ 𝐻𝒾 ! 𝐼'𝑚 𝑀𝒾𝒾𝑦𝓊𝑠 ˒˒</b>
   </h1>
 
   <p align="center">
